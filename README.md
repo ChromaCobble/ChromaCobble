@@ -1,4 +1,9 @@
-### Hi there 👋
+## Hello, I'm Ata. 👋
+### Since coding fascinates me, I would like to share my journey and fascination with you!
+---
+⚡ If you would like to reach out to me, hit me up on https://twitter.com/ChromaCobble or ***ChromaCobble#9045*** on Discord
+
+
 
 <!--
 **ChromaCobble/ChromaCobble** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
