@@ -2,7 +2,10 @@
 ![banner](images/banner.jpg)
 ### Since coding fascinates me, I would like to share my journey and fascination with you!
 ---
-⚡ If you would like to reach out to me, hit me up on https://twitter.com/ChromaCobble or ***ChromaCobble#9045*** on Discord
+  ⚡If you would like to reach out to me,
+  ✉️***chromacobble@gmail.com***
+  🔵https://twitter.com/ChromaCobble
+  🤖***ChromaCobble#9045*** on Discord
 
 
 
