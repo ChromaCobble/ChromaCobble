@@ -5,7 +5,7 @@
   ⚡If you would like to reach out to me,
   - ✉️E-Mail: ***chromacobble@gmail.com***
   - 🔵Twitter :  https://twitter.com/ChromaCobble
-  - 🔵Linkedin : https://www.linkedin.com/in/ata-an%C4%B1l-alt%C4%B1nta%C5%9F-a685b1171/
+  - 🔵Linkedin : https://www.linkedin.com/in/ataanila
   - 🤖Discord :  ***ChromaCobble#9045***
 
 
